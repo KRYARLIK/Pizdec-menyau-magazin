@@ -1,1 +1,1 @@
-# Pizdec-menyau-magazin
+# kyrlik
